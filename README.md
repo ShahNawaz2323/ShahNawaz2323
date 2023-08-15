@@ -1,11 +1,13 @@
 - 👋 Hi, I’m @ShahNawaz2323
-- 👀 I’m interested in coding
+- 👀 I’m interested in IT Support Roles and coding
+- 🌱 Professional IT Support Assistant and Desktop Engineer
 - 🌱 I’m currently learning DotNet
-- 💞️ I’m looking to collaborate on Mini Projects using dotnet technologies like ASP.Net or core.
+- 💞️ Loking for Jobs in the field as IT Suport Engineer or Desktop Support Engineer 
+- 💞️ I’m also looking to collaborate on Mini Projects using dotnet technologies like ASP.Net or core.
 - 📫 How to reach me "shahnawazwarriach99023@outlook.com"
 
 
-# Former IT Manager at Smart Water RO Plant Sargodha and Computer Science Graduate (BSCS).
+# IT Support Assistant | Desktop Support Engineer | Former IT Support Specialist at Smart Water Industrial RO Plant Sargodha and Computer Science Graduate (BSCS).
 I'am a hard worker so there is no replacement of hard work for prosperity. No matter how talented you are, you’ve to work hard to excel in life. It’s not about competition only, it’s also about determination and consistency. No matter which profession you choose which career you aim at, you’ve to work hard to perform the best and make it to the top.
 # WEB DEVELOPER and ASP.NET Develper ,knowledge seeker , content writer , editor , WordPress professional and content designer. 
 
